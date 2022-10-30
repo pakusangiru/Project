@@ -1,1 +1,0 @@
-# pakusangiru.github.io
